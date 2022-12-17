@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @44ah(susian @ india)
+- 👀 I’m interested in ...(little assist s)
+- 🌱 I’m currently learning ...(move)
+- 💞️ I’m looking to collaborate on ...(marketings)
+- 📫 How to reach me (via profile)
