@@ -1,4 +1,2 @@
-- 👋 Hi, I’m @44ah(susian @ evms)
-- 👀 I’m interested in ...(little assist s)
-- 🌱 I’m currently making ...(web.3-score)
-- 📫 How to reach me (via profile)
+# Web-3 Reveals
+🤝 revke,dedotfi
